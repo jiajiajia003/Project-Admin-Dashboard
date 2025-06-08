@@ -1,1 +1,2 @@
 # Project-Admin-Dashboard
+Profile image credit to: https://www.freepik.com/free-vector/businessman-character-avatar-isolated_6769264.htm#fromView=keyword&page=1&position=0&uuid=06d9f747-cd86-4187-9261-ce38b4dab1ec&query=Male+Avatar
